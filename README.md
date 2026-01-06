@@ -1,2 +1,0 @@
-# boat-is-beautiful
-มารยาทไทย
